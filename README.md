@@ -1,3 +1,3 @@
 
 
-find me @karmine0x5f on Twitter, YouTube, and Medium
+find me @karmine0x5f on Twitter and YouTube
